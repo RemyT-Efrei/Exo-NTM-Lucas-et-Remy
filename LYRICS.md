@@ -1,4 +1,3 @@
-
 # Fichier des Lyrics
 
 Kool Shen
@@ -26,8 +25,6 @@ Regarde-le, quand il parle, écoute-le!
 Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux
 
 
-
-
 Coeur
 
 Laisse pas traîner ton fils
@@ -35,6 +32,7 @@ Si tu ne veux pas qu'il glisse
 Qu'il te ramène du vice
 Laisse pas traîner ton fils
 Si tu veux pas qu'il glisse
+ Ajout du couplet de Joey starr
 
 
 JoeyStarr
@@ -58,6 +56,7 @@ Croyant la jouer fine, il ne voulait pas, ne cherchait même pas
 Chaque jour un peu plus
 J'avais pas l'impression d'être plus coté qu'une caisse à l'argus
 Donc j'ai dû renoncer, trouver mes propres complices
+
 Mes partenaires de glisse, désolé si je m'immisce
 
 
