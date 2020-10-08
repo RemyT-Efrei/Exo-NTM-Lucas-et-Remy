@@ -23,3 +23,12 @@ C'est comme ça que tu veux qu'il grandisse?
 J'ai pas de conseil à donner, mais si tu veux pas qu'il glisse
 Regarde-le, quand il parle, écoute-le!
 Le laisse pas chercher ailleurs l'amour qu'il devrait y avoir dans tes yeux
+
+
+Coeur
+
+Laisse pas traîner ton fils
+Si tu ne veux pas qu'il glisse
+Qu'il te ramène du vice
+Laisse pas traîner ton fils
+Si tu veux pas qu'il glisse
